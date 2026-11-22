@@ -1,1 +1,1 @@
-# desty-kost
+# desti-kost
